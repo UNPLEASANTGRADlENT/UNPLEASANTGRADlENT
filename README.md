@@ -3,4 +3,4 @@ $$\text{\color{#2db530}{poob or danica}}$$
 any prns but he/him preferred 
 mostly found on mafias/under bakery/somewhere near spawn
 $$\text{\color{#2db530}{my people..!}}$$
-@deathdelivery @pulsariintrigue ?? 
+[@deathdelivery](https://github.com/deathdelivery) [@pulsariintrigue](https://github.com/pulsariintrigue) 

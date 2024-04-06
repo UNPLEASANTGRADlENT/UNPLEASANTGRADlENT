@@ -7,3 +7,6 @@
 <p align="center">
 I hate my friends :// they're just so yaoi/yuri.....smh
 </p>
+<p align="center">
+    <img width="200" src="https://64.media.tumblr.com/59e7f6103ea2d714d6fe2c73f3c13f5a/5608c1ce863f9968-26/s540x810/5924739802d5fb66bab88152a236622a428f65d8.gifv" alt="BLACK STAAARS">
+</p>

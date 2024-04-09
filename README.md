@@ -2,11 +2,13 @@
     <img width="200" src="https://i.imgur.com/C9beTFj.png"ac soda on twt">
 </p>
 <p align="center">
-    <img width="200" src="https://64.media.tumblr.com/53788712a593bd71cd6ed50576a2f4da/719b4feae2e04570-7b/s1280x1920/d43e72194a2a9b6fbf2f84d005ffce05dc66534a.pnj" alt="sigma divider">
+    <img width="200" src="https://64.media.tumblr.com/64084f352d1664758e1a4febcb0e4464/8ac72bb49761ea20-51/s1280x1920/6f95cb38697fbf131637f4c1a8b625d9b372f3cf.gifv" alt="sigma divider">
 </p>
 <p align="center">
-They're so Yuri Ugh
+do you think you would kill for me one day?
+
+yes, of course I will my darling. 
 </p>
 <p align="center">
-    <img width="200" src="https://64.media.tumblr.com/59e7f6103ea2d714d6fe2c73f3c13f5a/5608c1ce863f9968-26/s540x810/5924739802d5fb66bab88152a236622a428f65d8.gifv" alt="BLACK STAAARS">
+    <img width="200" src="https://64.media.tumblr.com/64084f352d1664758e1a4febcb0e4464/8ac72bb49761ea20-51/s1280x1920/6f95cb38697fbf131637f4c1a8b625d9b372f3cf.gifv" alt="BLACK STAAARS">
 </p>
